@@ -11,6 +11,8 @@ I am 66, a graduate student at National Taichung University of Science and Techn
 
 ### 📫 Get in Touch
 - [My Portfolio](https://66cn.notion.site/5f6d5150281a48a0b50aa3911264dbf5?pvs=4)
+- [Sketchfab](https://sketchfab.com/cn66)
+- [ArtStation](https://www.artstation.com/cn66)
 - Email: gajk1034@gmail.com
 
 <!--
